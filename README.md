@@ -36,7 +36,7 @@ I build things on the side — mostly tools that scratch my own itch using moder
 ## 🎮 When I'm Not PMing
 
 Retro gaming enthusiast — NES, SNES, N64, PS1/PS2, Wii.  
-Investing nerd. Amateur theologian. Always have a podcast queued.
+Investing nerd. 1990s Lego Fan. Always have a podcast queued.
 
 ---
 
